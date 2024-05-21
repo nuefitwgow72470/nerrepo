@@ -1,1 +1,1 @@
-The Marvel Cinematic Universe (MCU) kicked off in 2010 with "Iron Man 2" and expanded to become the highest-grossing film franchise of all time.
+The success of "Game of Thrones" led to a wide range of merchandise, including action figures, clothing, and collectible items.
