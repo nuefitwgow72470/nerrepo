@@ -1,1 +1,1 @@
-The series has inspired tourism to filming locations, such as Dubrovnik, Croatia, which served as the backdrop for King's Landing.
+The series features multiple noble houses vying for control of the Iron Throne of the Seven Kingdoms of Westeros.
