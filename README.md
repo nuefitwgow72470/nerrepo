@@ -1,1 +1,1 @@
-"Donnie Darko" (2001), directed by Richard Kelly, gained a cult following for its enigmatic storyline and memorable performances, including Jake Gyllenhaal's.
+"Interstellar" (2014), directed by Christopher Nolan, utilized practical effects and scientific accuracy to depict space travel, immersing audiences in its epic narrative.
