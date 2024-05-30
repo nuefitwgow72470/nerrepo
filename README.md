@@ -1,1 +1,1 @@
-"Interstellar" (2014), directed by Christopher Nolan, utilized practical effects and scientific accuracy to depict space travel, immersing audiences in its epic narrative.
+"The Irishman" (2019), directed by Martin Scorsese, showcased the potential of streaming platforms for financing and distributing ambitious, auteur-driven projects.
