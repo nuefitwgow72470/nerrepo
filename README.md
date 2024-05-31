@@ -1,1 +1,1 @@
-"The Irishman" (2019), directed by Martin Scorsese, showcased the potential of streaming platforms for financing and distributing ambitious, auteur-driven projects.
+"Game of Thrones" is known for its complex political intrigue, epic battles, and unexpected plot twists.
