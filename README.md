@@ -1,1 +1,1 @@
-"Game of Thrones" is known for its complex political intrigue, epic battles, and unexpected plot twists.
+The rise of streaming platforms like Netflix and Amazon Prime Video disrupted the traditional film distribution model, leading to an influx of original content.
