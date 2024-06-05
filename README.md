@@ -1,1 +1,1 @@
-"An Inconvenient Truth" (2006), featuring former Vice President Al Gore, raised awareness about climate change and won the Academy Award for Best Documentary Feature.
+"Roma" (2018), directed by Alfonso Cuarón, showcased the richness of Mexican cinema and earned numerous accolades, including the Academy Award for Best Director.
