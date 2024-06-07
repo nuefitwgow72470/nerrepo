@@ -1,1 +1,1 @@
-"Roma" (2018), directed by Alfonso Cuarón, showcased the richness of Mexican cinema and earned numerous accolades, including the Academy Award for Best Director.
+Several actors from the series, including Emilia Clarke, Peter Dinklage, and Lena Headey, received Emmy nominations for their performances.
