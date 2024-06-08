@@ -1,1 +1,1 @@
-Several actors from the series, including Emilia Clarke, Peter Dinklage, and Lena Headey, received Emmy nominations for their performances.
+The series finale, "The Iron Throne," aired on May 19, 2019, marking the conclusion of the epic saga.
