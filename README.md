@@ -1,1 +1,1 @@
-"Black Panther" (2018) made history as the first superhero film to receive a Best Picture nomination at the Academy Awards.
+"The Dark Knight" (2008), directed by Christopher Nolan, redefined the superhero genre and earned Heath Ledger a posthumous Oscar for his portrayal of the Joker.
