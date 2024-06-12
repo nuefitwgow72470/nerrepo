@@ -1,1 +1,1 @@
-"The Dark Knight" (2008), directed by Christopher Nolan, redefined the superhero genre and earned Heath Ledger a posthumous Oscar for his portrayal of the Joker.
+Pixar Animation Studios dominated the decade with hits like "Finding Nemo" (2003), "The Incredibles" (2004), and "Up" (2009), showcasing groundbreaking animation and storytelling.
