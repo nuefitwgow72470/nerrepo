@@ -1,1 +1,1 @@
-Pixar Animation Studios dominated the decade with hits like "Finding Nemo" (2003), "The Incredibles" (2004), and "Up" (2009), showcasing groundbreaking animation and storytelling.
+"Gravity" (2013), directed by Alfonso Cuarón, pushed the boundaries of visual effects and immersive storytelling, earning critical acclaim and multiple Academy Awards.
