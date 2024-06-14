@@ -1,1 +1,1 @@
-"Gravity" (2013), directed by Alfonso Cuarón, pushed the boundaries of visual effects and immersive storytelling, earning critical acclaim and multiple Academy Awards.
+Jamie Foxx received critical acclaim for his portrayal of musician Ray Charles in "Ray" (2004), winning the Academy Award for Best Actor.
