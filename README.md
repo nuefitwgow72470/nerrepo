@@ -1,1 +1,1 @@
-"Spider-Man: Into the Spider-Verse" (2018) revolutionized animation with its innovative visual style and diverse representation of Spider-Man characters.
+James Cameron's "Avatar" (2009) paved the way for advancements in 3D filmmaking and motion capture technology, influencing the visual aesthetics of subsequent films.
