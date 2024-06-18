@@ -1,1 +1,1 @@
-"Crouching Tiger, Hidden Dragon" (2000), directed by Ang Lee, became a global sensation, blending martial arts action with poignant drama and winning four Academy Awards.
+"Spider-Man: Into the Spider-Verse" (2018) revolutionized animation with its innovative visual style and diverse representation of Spider-Man characters.
