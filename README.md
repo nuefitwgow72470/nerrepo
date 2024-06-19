@@ -1,1 +1,1 @@
-James Cameron's "Avatar" (2009) paved the way for advancements in 3D filmmaking and motion capture technology, influencing the visual aesthetics of subsequent films.
+Sofia Coppola's "Lost in Translation" (2003) won the Academy Award for Best Original Screenplay and earned critical praise for its intimate portrayal of loneliness and connection.
