@@ -1,1 +1,1 @@
-Sofia Coppola's "Lost in Translation" (2003) won the Academy Award for Best Original Screenplay and earned critical praise for its intimate portrayal of loneliness and connection.
+"Eternal Sunshine of the Spotless Mind" (2004), directed by Michel Gondry, explored themes of memory and love, earning critical acclaim and a loyal fanbase.
