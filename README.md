@@ -1,1 +1,1 @@
-The phrase "winter is coming" became a popular catchphrase, symbolizing impending danger or change.
+Maisie Williams (Arya Stark) and Sophie Turner (Sansa Stark) auditioned for each other's roles initially.
