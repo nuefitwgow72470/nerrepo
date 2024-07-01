@@ -1,1 +1,1 @@
-Maisie Williams (Arya Stark) and Sophie Turner (Sansa Stark) auditioned for each other's roles initially.
+The show's costume design, by Michele Clapton, garnered praise for its attention to detail and historical inspiration.
