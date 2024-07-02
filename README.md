@@ -1,1 +1,1 @@
-The show's costume design, by Michele Clapton, garnered praise for its attention to detail and historical inspiration.
+"Spider-Man: Into the Spider-Verse" (2018) revolutionized animation with its innovative visual style and diverse representation of Spider-Man characters.
