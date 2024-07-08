@@ -1,1 +1,1 @@
-"The Irishman" (2019), directed by Martin Scorsese, showcased the potential of streaming platforms for financing and distributing ambitious, auteur-driven projects.
+Ellen Page garnered praise for her role as a pregnant teenager in "Juno" (2007), earning an Academy Award nomination for Best Actress.
