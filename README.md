@@ -1,1 +1,1 @@
-Ellen Page garnered praise for her role as a pregnant teenager in "Juno" (2007), earning an Academy Award nomination for Best Actress.
+Cersei Lannister, portrayed by Lena Headey, is one of the most complex and compelling antagonists in the show, known for her ruthless pursuit of power.
