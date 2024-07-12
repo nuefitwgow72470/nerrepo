@@ -1,1 +1,1 @@
-Ellen Page garnered praise for her role as a pregnant teenager in "Juno" (2007), earning an Academy Award nomination for Best Actress.
+Fans of "Game of Thrones" developed elaborate theories about the identity of Azor Ahai, the fate of Jon Snow, and other unresolved plot points.
