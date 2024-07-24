@@ -1,1 +1,1 @@
-"The Irishman" (2019), directed by Martin Scorsese, showcased the potential of streaming platforms for financing and distributing ambitious, auteur-driven projects.
+"Game of Thrones" received critical acclaim and holds the record for the most Primetime Emmy Awards won by a drama series.
