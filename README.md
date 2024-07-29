@@ -1,1 +1,1 @@
-Films like "Black Panther" (2018), "Crazy Rich Asians" (2018), and "Wonder Woman" (2017) showcased diverse casts and stories, underscoring the importance of representation in cinema.
+"Roma" (2018), directed by Alfonso Cuarón, showcased the richness of Mexican cinema and earned numerous accolades, including the Academy Award for Best Director.
