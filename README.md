@@ -1,1 +1,1 @@
-The Battle of the Bastards, showcased in Season 6, Episode 9, is praised for its visceral intensity and cinematography.
+Despite its controversial final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
