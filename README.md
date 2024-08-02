@@ -1,1 +1,1 @@
-Despite its controversial final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
+"Game of Thrones" is based on George R.R. Martin's book series "A Song of Ice and Fire."
